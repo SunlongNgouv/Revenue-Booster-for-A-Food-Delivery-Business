@@ -1,1 +1,1 @@
-# Revenue-Boosting-Strategy-for-Food-Delivery-Business
+# Revenue-Booster-for-Food-Delivery-Business
